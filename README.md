@@ -1,5 +1,5 @@
 > <i>proship, propara, lolisho, zionists, & radqueer are not welcome. i block & hide freely.</i>
-<img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/blue%20pagedoll.gif" align="left" style="width: 200px;">
+<img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok/blue%20pagedoll.gif" align="left" style="width: 150px;">
 <br><b>JAY or WADE ✦ HE/IT ✦ ADULT</b>
 <br>
 <p>
